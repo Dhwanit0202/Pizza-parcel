@@ -1,0 +1,4 @@
+Heat oil in a frying pan over moderately high heat. Add mushroom, pepperoni, bacon and capsicum; cook and stir for 5 minutes or until soft. Remove pan from heat. Cool. Stir in mozzarella, olives and half the oregano.
+Preheat oven to 230°C (210°C fan-forced). Line a large baking tray with baking paper.
+Roll out dough on a large piece of baking paper to a 42x25cm rectangle. Spread tomato paste over dough. Place filling along the centre of rectangle. Fold short ends over filling. Fold long sides over, stretching dough to cover filling completely. Pinch edges to seal.
+Place prepared tray with baking paper upside down on top of dough, then carefully invert parcel onto tray, seam-side down. Brush with egg. Sprinkle with remaining oregano. Bake for 20 minutes or until golden and cooked. Cut parcel into 4 pieces. Serve with salad.
